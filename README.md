@@ -1,2 +1,1 @@
-Hey, it's Ragnmynts.
-Here is my carrd. https://userlex.carrd.co/#
+Going crazy on a slow motion trainwreck 
